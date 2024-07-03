@@ -7,9 +7,5 @@ Data guadagnata, restiamo per la prossima
 
 Ma prova a chiamarmi no? 
 
-```
+
 ![Bologna](IMG_20240621_005511.jpg)
-
-
-
-```
